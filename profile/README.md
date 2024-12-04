@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/11a89009-89c0-4178-a0ca-44965a43b38e)
+
 ## What are we?
 - 우리는 한국에서 '무정부' 컨텐츠를 운영합니다.
 - We provide ‘Anarchy’ content in Korea.
