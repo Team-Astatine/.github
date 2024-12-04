@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/11a89009-89c0-4178-a0ca-44965a43b38e)
+![241478650-6be22da5-ce84-4f39-a242-9ee31e0d7be9](https://github.com/user-attachments/assets/ca934e10-9185-4f78-9bc1-0baaddbfa74a)
 
 ## What are we?
 - 우리는 한국에서 '무정부' 컨텐츠를 운영합니다.
